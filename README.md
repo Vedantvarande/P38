@@ -1,1 +1,1 @@
-# project-38-INFINTE-RUNNER-GAME
+Project 38 by Vedant Varande
